@@ -3,3 +3,4 @@
 - [https://www.youtube.com/channel/UCABGoVhOoQnv3kCAJtayVCQ](https://www.youtube.com/channel/UCABGoVhOoQnv3kCAJtayVCQ)
 - [https://x.com/AamuPolvica](https://x.com/AamuPolvica)
 - [https://www.pinterest.com/aamupolvica/](https://www.pinterest.com/aamupolvica/)
+- [https://aamupolvica.github.io/](https://aamupolvica.github.io/)
